@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TatyJu
-- 👀 I’m interested in learning something useful and/or interesting
+- 👀 I’m interested in learning something useful and/or funny
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : 1964590466@qq.com
